@@ -1,0 +1,1 @@
+Repozytorium jipp z502
